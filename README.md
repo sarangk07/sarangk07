@@ -1,3 +1,4 @@
+![original_sarang_github_meme_dark](https://github.com/sarangk07/sarangk07/assets/141896682/c209a126-db67-4745-ac2a-b0f1cd718020)
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Sarang-k-2b7844244) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/Skoll14362789) 
